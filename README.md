@@ -7,7 +7,7 @@ DO NOT REUPLOAD ANYWHERE WITHOUT MY PERMISSION!
 
 CONTACT: 
 
-Discord: Ocuro#0001
+Discord: OcuroTheWolfShep#4042
 
 Mail: ocuro@ocuro.de
 
